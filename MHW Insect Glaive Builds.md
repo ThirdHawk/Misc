@@ -6,16 +6,6 @@ Questa è una build che ho fatto io con le armature a noi disponibili cercando d
 Questa è una build sui critici con aggiunte di quality of life come probabilità di dimezzare i danni subiti, antisussulto e bonus cure.
 
 ## Armatura
-
-```mermaid
-graph TD
-A{Elmo} --> A1{Kaiser β +}
-B[Cotta] --> B1{Kaiser β +}
-C[Parabraccia] --> C1{Kaiser β +}
-D[Spira] --> D1{Kirin β +}
-E[Schinieri] --> E1{Yian Garuga β +}
-```
-
 **Elmo** ---> Velkhana β +
 
 **Cotta** --> Kirin β +

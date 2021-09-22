@@ -7,9 +7,13 @@ Questa è una build sui critici con aggiunte di quality of life come probabilit�
 
 ## Armatura
 **Elmo** ---> Velkhana β +
+
 **Cotta** --> Kirin β +
+
 **Parabraccia** --> Legiana β +
+
 **Spira** --> Velkhana β +
+
 **Schinieri** --> Yian Garuga β +
 
  ### Abilità che derivano da questo set (senza gioielli)

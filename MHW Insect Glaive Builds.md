@@ -44,6 +44,7 @@ Eccoti però un elenco delle varie abilità che potrebbero tornarti utili:
 - **Rivela/Munizioni+** per sbloccare l'elemento nascosto di un'arma
 - **Attacco [elemento]** per ovvie ragioni
 - **Protezione udito** per ridurre o annullare l'effetto dei ruggiti dei mostri
+- **Antisussulto** previene respinte e aumenta l'efficacia di alcuni estratti dei kinsetti
 - **Bonus critico**
 - **Bonus cura**
 - **Bonus salute**

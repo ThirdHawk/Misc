@@ -9,4 +9,6 @@ Wishlist di Alejandro di cui cantava Lady Gaga in una sua canzone idk
   > Nota: alcuni brani non hanno un prezzo minimo (aka sono gratis). Se doveste prendermi qualcosa da  questo sito e vi imbattete in un caso del genere, vi prego di dare almeno 3/4€ al creatore
 
 ## Giochi
-Non ho sbatti di giocare a niente ultimamente se non a roba che ho già quindi non sprecate soldi su sta roba, thx 
+[Disco Elysium](https://store.steampowered.com/app/632470/Disco_Elysium__The_Final_Cut/)
+
+Al momento non ci sono altri giochi che mi interessano ma se conoscete qualcosa che pensate possa piacermi, ben venga!

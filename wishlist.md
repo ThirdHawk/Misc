@@ -10,5 +10,5 @@ Wishlist di Alejandro di cui cantava Lady Gaga in una sua canzone idk
 
 ## Giochi
 [Disco Elysium](https://store.steampowered.com/app/632470/Disco_Elysium__The_Final_Cut/)
-
+[Voice of Cards](https://store.steampowered.com/app/1113570/Voice_of_Cards_The_Isle_Dragon_Roars/)
 Al momento non ci sono altri giochi che mi interessano ma se conoscete qualcosa che pensate possa piacermi, ben venga!

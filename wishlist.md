@@ -9,7 +9,7 @@ Wishlist di Alejandro di cui cantava Lady Gaga in una sua canzone idk
   > Nota: alcuni brani non hanno un prezzo minimo (aka sono gratis). Se doveste prendermi qualcosa da  questo sito e vi imbattete in un caso del genere, vi prego di dare almeno 3/4€ al creatore
 
 ## Giochi
-[Disco Elysium](https://store.steampowered.com/app/632470/Disco_Elysium__The_Final_Cut/)
+[Shadow Warrior 3](https://store.steampowered.com/app/1036890/Shadow_Warrior_3/)
 
 [Voice of Cards](https://store.steampowered.com/app/1113570/Voice_of_Cards_The_Isle_Dragon_Roars/)
 

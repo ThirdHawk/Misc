@@ -3,6 +3,7 @@ Wishlist di Alejandro di cui cantava Lady Gaga in una sua canzone idk
 
 ## Varie
 - [**Amazon**](https://www.amazon.it/hz/wishlist/ls/163ZIKGBFYIVL/ref=nav_wishlist_lists_1?_encoding=UTF8&type=wishlist)
+- [**Dishonored - Il gioco di ruolo**](https://fantasiastore.it/it/altri-giochi-di-ruolo/8786-dishonored-il-gioco-di-ruolo.html)
 
 ## Musica
 - [**Bandcamp**](https://bandcamp.com/thirdhawk/wishlist)

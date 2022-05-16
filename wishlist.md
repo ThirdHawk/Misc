@@ -10,8 +10,6 @@ Wishlist di Alejandro di cui cantava Lady Gaga in una sua canzone idk
   > Nota: alcuni brani non hanno un prezzo minimo (aka sono gratis). Se doveste prendermi qualcosa da  questo sito e vi imbattete in un caso del genere, vi prego di dare almeno 3/4€ al creatore
 
 ## Giochi
-[OneShot](https://store.steampowered.com/app/420530/OneShot/?l=italian)
-
 [Stray](https://store.steampowered.com/app/1332010/Stray/)
 
 [Cult of the Lamb](https://store.steampowered.com/app/1313140/Cult_of_the_Lamb/)

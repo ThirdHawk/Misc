@@ -3,7 +3,6 @@ Wishlist di Alejandro di cui cantava Lady Gaga in una sua canzone idk
 
 ## Varie
 - [**Amazon**](https://www.amazon.it/hz/wishlist/ls/163ZIKGBFYIVL/ref=nav_wishlist_lists_1?_encoding=UTF8&type=wishlist)
-- [**Dishonored - Il gioco di ruolo**](https://fantasiastore.it/it/altri-giochi-di-ruolo/8786-dishonored-il-gioco-di-ruolo.html)
 
 ## Musica
 - [**Bandcamp**](https://bandcamp.com/thirdhawk/wishlist)
@@ -12,13 +11,7 @@ Wishlist di Alejandro di cui cantava Lady Gaga in una sua canzone idk
 ## Giochi
 [Stray](https://store.steampowered.com/app/1332010/Stray/)
 
-[Cult of the Lamb](https://store.steampowered.com/app/1313140/Cult_of_the_Lamb/)
-
 [Loot River](https://store.steampowered.com/app/1494260/Loot_River/)
-
-[Death's Door](https://store.steampowered.com/app/894020/Deaths_Door/)
-
-[A Plague Tale Requiem](https://store.steampowered.com/app/1182900/A_Plague_Tale_Requiem/)
 
 [Doors Paradox](https://store.steampowered.com/app/1622770/Doors_Paradox/)
 

@@ -6,7 +6,7 @@
 
 ## Musica
 - [**Bandcamp**](https://bandcamp.com/thirdhawk/wishlist)
-  > Nota: alcuni brani non hanno un prezzo minimo (aka sono gratis). Se doveste prendermi qualcosa da  questo sito e vi imbattete in un caso del genere, vi prego di dare almeno 3/4€ al creatore
+  > Nota: alcuni brani non hanno un prezzo minimo (aka sono gratis). Se doveste prendermi qualcosa da  questo sito e vi imbattete in un caso del genere, vi prego di dare almeno 3/4€ al creatore. In caso, dovete passare sopra alla musica col mouse e premere "send as gift".
 
 ## Giochi
 [Stray](https://store.steampowered.com/app/1332010/Stray/)

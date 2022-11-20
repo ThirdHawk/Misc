@@ -10,7 +10,7 @@
   > Nota: alcuni brani non hanno un prezzo minimo (aka sono gratis). Se doveste prendermi qualcosa da  questo sito e vi imbattete in un caso del genere, vi prego di dare almeno 3/4€ al creatore. In caso, dovete passare sopra alla musica col mouse e premere "send as gift".
 
 ## Libri, fumetti e altra roba scritta
-- [**Elenco amazon**](https://www.amazon.it/hz/wishlist/ls/239C4IOUIBK0L/)
+- [**Elenco amazon**](https://www.amazon.it/hz/wishlist/ls/239C4IOUIBK0L/) (pls notare le priorità)
 
 ## Giochi
 [Stray](https://store.steampowered.com/app/1332010/Stray/)

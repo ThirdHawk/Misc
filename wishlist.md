@@ -13,8 +13,6 @@
 - [**Elenco amazon**](https://www.amazon.it/hz/wishlist/ls/239C4IOUIBK0L/) (pls notare le priorità)
 
 ## Giochi
-[Stray](https://store.steampowered.com/app/1332010/Stray/)
-
 [Loot River](https://store.steampowered.com/app/1494260/Loot_River/)
 
 [Doors Paradox](https://store.steampowered.com/app/1622770/Doors_Paradox/)

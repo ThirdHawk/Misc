@@ -11,6 +11,7 @@
 
 ## Libri, fumetti e altra roba scritta
 - [**Elenco amazon**](https://www.amazon.it/hz/wishlist/ls/239C4IOUIBK0L/) (pls notare le priorità)
+  > Questo alla fine è solo un elenco e ovviamente siete liberi di usare qualsiasi provider di roba cartacea che preferite.
 
 ## Giochi
 [Loot River](https://store.steampowered.com/app/1494260/Loot_River/)

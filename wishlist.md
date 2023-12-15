@@ -4,8 +4,8 @@
 ## Varie
 - [**Amazon**](https://www.amazon.it/hz/wishlist/ls/163ZIKGBFYIVL/ref=nav_wishlist_lists_1?_encoding=UTF8&type=wishlist)
 - [**Orologio a tubo**](https://www.etsy.com/it/listing/761876082/orologio-a-tubo-nixie-include-tubi-in-14?pro=1&frs=1&bes=1&sts=1) figo
-- [**Tappeto mouse figo**](https://uwumarket.us/products/rev-dark-xl-mousepad?_pos=8&_sid=f095ffd0d&_ss=r)
-- [**Felpa figa**](https://uwumarket.us/products/rev-streetwear-hoodie?_pos=5&_sid=f095ffd0d&_ss=r)
+- [**Tappeto mouse**](https://uwumarket.us/products/rev-dark-xl-mousepad?_pos=8&_sid=f095ffd0d&_ss=r) figo
+- [**Felpa**](https://uwumarket.us/products/rev-streetwear-hoodie?_pos=5&_sid=f095ffd0d&_ss=r) figa
 
 ## Musica
 - [**Bandcamp**](https://bandcamp.com/thirdhawk/wishlist)
@@ -23,4 +23,5 @@
 - [Slime 3K: Rise Against Despot](https://store.steampowered.com/app/2348610/Slime_3K_Rise_Against_Despot/)
 - [Heretic's Fork](https://store.steampowered.com/app/2181610/Heretics_Fork/)
 - [Death Must Die](https://store.steampowered.com/app/2334730/Death_Must_Die/)
+  
 Al momento non ci sono altri giochi che mi interessano ma se conoscete qualcosa che pensate possa piacermi, ben venga!

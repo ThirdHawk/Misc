@@ -19,4 +19,8 @@
 - [**Amazon**](https://www.amazon.it/hz/wishlist/ls/360PA7UAQ0F9Y)
 
 ## Giochi
+- [Vampire Survivors](https://store.steampowered.com/app/1794680/Vampire_Survivors/)
+- [Slime 3K: Rise Against Despot](https://store.steampowered.com/app/2348610/Slime_3K_Rise_Against_Despot/)
+- [Heretic's Fork](https://store.steampowered.com/app/2181610/Heretics_Fork/)
+- [Death Must Die](https://store.steampowered.com/app/2334730/Death_Must_Die/)
 Al momento non ci sono altri giochi che mi interessano ma se conoscete qualcosa che pensate possa piacermi, ben venga!

@@ -20,7 +20,5 @@
 - [**Amazon**](https://www.amazon.it/hz/wishlist/ls/360PA7UAQ0F9Y)
 
 ## Giochi
-- [Vampire Survivors](https://store.steampowered.com/app/1794680/Vampire_Survivors/)
-- [Heretic's Fork](https://store.steampowered.com/app/2181610/Heretics_Fork/)
-  
+
 Al momento non ci sono altri giochi che mi interessano ma se conoscete qualcosa che pensate possa piacermi, ben venga!

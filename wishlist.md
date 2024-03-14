@@ -21,4 +21,5 @@
 
 ## Giochi
 - [Last Epoch](https://store.steampowered.com/app/899770/Last_Epoch/)
+
 Al momento non ci sono altri giochi che mi interessano ma se conoscete qualcosa che pensate possa piacermi, ben venga!

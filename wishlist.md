@@ -20,6 +20,4 @@
 - [**Amazon**](https://www.amazon.it/hz/wishlist/ls/360PA7UAQ0F9Y)
 
 ## Giochi
-- [Last Epoch](https://store.steampowered.com/app/899770/Last_Epoch/)
-
 Al momento non ci sono altri giochi che mi interessano ma se conoscete qualcosa che pensate possa piacermi, ben venga!

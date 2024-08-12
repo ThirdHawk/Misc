@@ -20,4 +20,6 @@
 - [**Amazon**](https://www.amazon.it/hz/wishlist/ls/360PA7UAQ0F9Y)
 
 ## Giochi
+
+- [No Rest For The Wicked](https://store.steampowered.com/app/1371980/No_Rest_for_the_Wicked/)
 Al momento non ci sono altri giochi che mi interessano ma se conoscete qualcosa che pensate possa piacermi, ben venga!

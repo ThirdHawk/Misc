@@ -6,6 +6,7 @@
 - [**Orologio a tubo**](https://www.etsy.com/it/listing/761876082/orologio-a-tubo-nixie-include-tubi-in-14?pro=1&frs=1&bes=1&sts=1) figo
 - [**Tappeto mouse Rev**](https://uwumarket.us/products/rev-dark-xl-mousepad?_pos=8&_sid=f095ffd0d&_ss=r)
 - [**Felpa Rev**](https://uwumarket.us/products/rev-streetwear-hoodie?_pos=5&_sid=f095ffd0d&_ss=r)
+- [**Felpa random**](https://uwumarket.us/products/fluffenfox_-wholesome-group-crewneck) che ho trovato. (versione [**senza cappuccio**](https://uwumarket.us/products/fluffenfox_-wholesome-group-crewneck))
 
 ## Musica
 - [**Bandcamp**](https://bandcamp.com/thirdhawk/wishlist)

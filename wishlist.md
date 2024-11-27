@@ -21,6 +21,13 @@
 
 ## Giochi
 
-- [No Rest For The Wicked](https://store.steampowered.com/app/1371980/No_Rest_for_the_Wicked/)
+- [The Pathless](https://store.steampowered.com/app/1492680/The_Pathless/)
+- [Solar Ash](https://store.steampowered.com/app/1867530/Solar_Ash/)
+- [Wavetale](https://store.steampowered.com/app/1823930/Wavetale/)
+- [KILL KNIGHT](https://store.steampowered.com/app/2694420/KILL_KNIGHT/)
+- [WitchSpring R](https://store.steampowered.com/app/1958220/WitchSpring_R/)
+- [Bleak Sword DX](https://store.steampowered.com/app/2193050/Bleak_Sword_DX/)
+- [ROBOBEAT](https://store.steampowered.com/app/1456760/ROBOBEAT/)
+- [YogSothoths Yard](https://store.steampowered.com/app/2194530/YogSothoths_Yard/)
 
 Al momento non ci sono altri giochi che mi interessano ma se conoscete qualcosa che pensate possa piacermi, ben venga!

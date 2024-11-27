@@ -29,5 +29,6 @@
 - [Bleak Sword DX](https://store.steampowered.com/app/2193050/Bleak_Sword_DX/)
 - [ROBOBEAT](https://store.steampowered.com/app/1456760/ROBOBEAT/)
 - [YogSothoths Yard](https://store.steampowered.com/app/2194530/YogSothoths_Yard/)
+- [Trainee Death Simulator](https://store.steampowered.com/app/3188550/Trainee_Death_Simulator/)
 
 Al momento non ci sono altri giochi che mi interessano ma se conoscete qualcosa che pensate possa piacermi, ben venga!

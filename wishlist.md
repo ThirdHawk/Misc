@@ -16,7 +16,7 @@
 - ~~[**Elenco amazon**](https://www.amazon.it/hz/wishlist/ls/239C4IOUIBK0L/) (pls **IGNORARE LE PRIORITA'!!!** Sono vecchie come la madonna e non le posso aggiornare perché amazon è buggato per me)~~
   > ~~Questo alla fine è solo un elenco e ovviamente siete liberi di usare qualsiasi provider di roba cartacea che preferite.~~
   >
-Ci ho riflettuto un sec, guardando alla mia sinistra e vedendo la libreria piena di titoli mai aperti o mezzi letti e lasciati lì... Forse è meglio di no, <mark>niente libri per me a meno che non siano della lista di sotto!</mark> Spero non aver aggiunto sta scritta troppo tardi altrimenti accetto comunque volentieri libri, solo che non so quando avrò la motivazione per leggerli.
+Ci ho riflettuto un sec, guardando alla mia sinistra e vedendo la libreria piena di titoli mai aperti o mezzi letti e lasciati lì... Forse è meglio di no, <mark>niente libri per me a meno che non siano della lista di sotto!</mark>
 
 ## Strumentopoli artistici
 - [**Amazon**](https://www.amazon.it/hz/wishlist/ls/360PA7UAQ0F9Y)
@@ -24,7 +24,6 @@ Ci ho riflettuto un sec, guardando alla mia sinistra e vedendo la libreria piena
 ## Giochi
 
 - [Solar Ash](https://store.steampowered.com/app/1867530/Solar_Ash/)
-- [Wavetale](https://store.steampowered.com/app/1823930/Wavetale/)
 - [WitchSpring R](https://store.steampowered.com/app/1958220/WitchSpring_R/)
 - [Bleak Sword DX](https://store.steampowered.com/app/2193050/Bleak_Sword_DX/)
 - [Gunfire Reborn](https://store.steampowered.com/app/1217060/Gunfire_Reborn/)

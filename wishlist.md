@@ -22,5 +22,6 @@ Ci ho riflettuto un sec, guardando alla mia sinistra e vedendo la libreria piena
 - [WitchSpring R](https://store.steampowered.com/app/1958220/WitchSpring_R/)
 - [Bleak Sword DX](https://store.steampowered.com/app/2193050/Bleak_Sword_DX/)
 - [Gunfire Reborn](https://store.steampowered.com/app/1217060/Gunfire_Reborn/)
+- [Slots & Daggers](https://store.steampowered.com/app/3631290/Slots__Daggers/)
 
 Al momento non ci sono altri giochi che mi interessano ma se conoscete qualcosa che pensate possa piacermi, ben venga!

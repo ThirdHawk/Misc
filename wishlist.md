@@ -18,11 +18,9 @@ Ci ho riflettuto un sec, guardando alla mia sinistra e vedendo la libreria piena
 
 ## Giochi
 
+- [Pragmata](https://store.steampowered.com/app/3357650/PRAGMATA/)
 - [Bleak Sword DX](https://store.steampowered.com/app/2193050/Bleak_Sword_DX/)
 - [Gunfire Reborn](https://store.steampowered.com/app/1217060/Gunfire_Reborn/)
-- [Slots & Daggers](https://store.steampowered.com/app/3631290/Slots__Daggers/)
 - [Tails in the Sky 1st Chapter](https://store.steampowered.com/app/3375780/Trails_in_the_Sky_1st_Chapter/)
-- [Octopath Traveler](https://store.steampowered.com/app/921570/OCTOPATH_TRAVELER/)
-- [Octopath Traveler II](https://store.steampowered.com/app/1971650/OCTOPATH_TRAVELER_II)
 
 Al momento non ci sono altri giochi che mi interessano ma se conoscete qualcosa che pensate possa piacermi, ben venga!

@@ -18,10 +18,9 @@ Ci ho riflettuto un sec, guardando alla mia sinistra e vedendo la libreria piena
 
 ## Giochi
 
-- [Kotama and Academy Citadel](https://store.steampowered.com/app/3639650/Kotama_and_Academy_Citadel)
 - [Pragmata](https://store.steampowered.com/app/3357650/PRAGMATA/)
+- [Kotama and Academy Citadel](https://store.steampowered.com/app/3639650/Kotama_and_Academy_Citadel)
 - [Tails in the Sky 1st Chapter](https://store.steampowered.com/app/3375780/Trails_in_the_Sky_1st_Chapter/)
-- [Bleak Sword DX](https://store.steampowered.com/app/2193050/Bleak_Sword_DX/)
 - [Gunfire Reborn](https://store.steampowered.com/app/1217060/Gunfire_Reborn/)
 
 Al momento non ci sono altri giochi che mi interessano ma se conoscete qualcosa che pensate possa piacermi, ben venga!

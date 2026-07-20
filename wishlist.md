@@ -18,7 +18,6 @@ Ci ho riflettuto un sec, guardando alla mia sinistra e vedendo la libreria piena
 
 ## Giochi
 
-- [Dragon Sword: Awakening](https://store.steampowered.com/app/4570720/DragonSword__Awakening/)
 - [Kotama and Academy Citadel](https://store.steampowered.com/app/3639650/Kotama_and_Academy_Citadel)
 - [Everwind](https://store.steampowered.com/app/2253100/Everwind/)
 

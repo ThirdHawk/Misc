@@ -20,8 +20,9 @@ Ci ho riflettuto un sec, guardando alla mia sinistra e vedendo la libreria piena
 
 - [Am I Nima](https://store.steampowered.com/app/3224600/Am_I_Nima/)
 - [Beacon Pines](https://store.steampowered.com/app/1269640/Beacon_Pines/)
+- [Anomalith](https://store.steampowered.com/app/4017880/%E3%82%A2%E3%83%8E%E3%83%9E%E3%83%AA%E3%82%B9ANOMALITH/)
+- ["I got reincarnated, and the Demon King's Castle is right next door?! LOL](https://store.steampowered.com/app/2860490/%E3%83%AF%E3%83%AD%E3%82%BF%E4%BF%BA%E3%81%AE%E5%AE%B6%E3%81%AE%E3%81%A8%E3%81%AA%E3%82%8A%E9%AD%94%E7%8E%8B%E5%9F%8Ewww/)
 - [Esoteric Ebb](https://store.steampowered.com/app/2057760/Esoteric_Ebb/)
 - [Kotama and Academy Citadel](https://store.steampowered.com/app/3639650/Kotama_and_Academy_Citadel)
-
 
 Al momento non ci sono altri giochi che mi interessano ma se conoscete qualcosa che pensate possa piacermi, ben venga!

@@ -19,6 +19,6 @@ Ci ho riflettuto un sec, guardando alla mia sinistra e vedendo la libreria piena
 ## Giochi
 
 - [Kotama and Academy Citadel](https://store.steampowered.com/app/3639650/Kotama_and_Academy_Citadel)
-- [Everwind](https://store.steampowered.com/app/2253100/Everwind/)
+- Idk, I do be thinking 🤔🤔🤔...
 
 Al momento non ci sono altri giochi che mi interessano ma se conoscete qualcosa che pensate possa piacermi, ben venga!
